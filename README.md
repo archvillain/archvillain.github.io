@@ -2,9 +2,8 @@
 https://archvillain.github.io/
 この組織のウェブサイト
 
-Credits for Codrops for this awesome template:
-この素晴らしいテンプレートのCodropsのクレジット：
-https://tympanus.net/codrops/2018/02/13/scrolling-letters-animation/
+Credits for Codrops for this awesome template: <br/>
+この素晴らしいテンプレートのCodropsのクレジット： https://tympanus.net/codrops/2018/02/13/scrolling-letters-animation/
 
 
 
