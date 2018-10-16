@@ -6,7 +6,7 @@ https://archvillain.github.io/
     <a href="#version">
         <img src="https://img.shields.io/badge/version-1.0-lightblue.svg"
             alt="version"></a>
-    <a href="https://discord.gg/HjJCwm5">
+    <a href="#">
         <img src="https://img.shields.io/discord/494990656603815950.svg?logo=discord"
             alt="chat on Discord"></a>
 </p>
