@@ -13,7 +13,7 @@ https://archvillain.github.io/
 この組織のウェブサイト
 
 archvillain.jp official and gallery page. we don't care about your opinion where we put our stuff. <br/>
-our ecommerce page: https://archvillain.github.io/
+our official ecommerce page: https://archvillain.jp/
                     
                                         DO WHAT THE f̬̪͕̓ͯ͝*̓҉̘̟̹@̳̪̺ͣ̍͂́͛̐K̠͈̪ͧ͘ YOU WANT TO PUBLIC LICENSE
                                  TERMS AND CONDITIONS FOR COPYING, DISTRIBUTION AND MODIFICATION
