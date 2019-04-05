@@ -17,7 +17,7 @@ Credits for Codrops for this awesome template: <br/>
 
 
 
-                                          DO WHAT THE FUCK YOU WANT TO PUBLIC LICENSE
+                                          DO WHAT THE f̬̪͕̓ͯ͝*̓҉̘̟̹@̳̪̺ͣ̍͂́͛̐K̠͈̪ͧ͘ YOU WANT TO PUBLIC LICENSE
                                  TERMS AND CONDITIONS FOR COPYING, DISTRIBUTION AND MODIFICATION
 
-                                           0. You just DO WHAT THE FUCK YOU WANT TO.
+                                           0. You just DO WHAT THE f̬̪͕̓ͯ͝*̓҉̘̟̹@̳̪̺ͣ̍͂́͛̐K̠͈̪ͧ͘ YOU WANT TO.
