@@ -12,7 +12,7 @@ https://archvillain.github.io/
 </p>
 この組織のウェブサイト
 
-archvillain.jp official and gallery page. we don't care about your opinion where we put our stuff. <br/>
+archvillain.jp official website and gallery page. we don't care about your opinion where we put our stuff. <br/>
 our official ecommerce page: https://archvillain.jp/
                     
                                         DO WHAT THE f̬̪͕̓ͯ͝*̓҉̘̟̹@̳̪̺ͣ̍͂́͛̐K̠͈̪ͧ͘ YOU WANT TO PUBLIC LICENSE
