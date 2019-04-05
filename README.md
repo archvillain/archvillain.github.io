@@ -12,12 +12,10 @@ https://archvillain.github.io/
 </p>
 この組織のウェブサイト
 
-Credits for Codrops for this awesome template: <br/>
-この素晴らしいテンプレートのCodropsのクレジット： https://tympanus.net/codrops/2018/02/13/scrolling-letters-animation/
-
-
-
-                                          DO WHAT THE f̬̪͕̓ͯ͝*̓҉̘̟̹@̳̪̺ͣ̍͂́͛̐K̠͈̪ͧ͘ YOU WANT TO PUBLIC LICENSE
+archvillain.jp official and gallery page. we don't care about your opinion where we put our stuff. <br/>
+our ecommerce page: https://archvillain.github.io/
+                    
+                                        DO WHAT THE f̬̪͕̓ͯ͝*̓҉̘̟̹@̳̪̺ͣ̍͂́͛̐K̠͈̪ͧ͘ YOU WANT TO PUBLIC LICENSE
                                  TERMS AND CONDITIONS FOR COPYING, DISTRIBUTION AND MODIFICATION
 
                                            0. You just DO WHAT THE f̬̪͕̓ͯ͝*̓҉̘̟̹@̳̪̺ͣ̍͂́͛̐K̠͈̪ͧ͘ YOU WANT TO.
